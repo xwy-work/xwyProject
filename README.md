@@ -1,3 +1,0 @@
-# xwyProject
-pratice
-EFAsｆＣ
